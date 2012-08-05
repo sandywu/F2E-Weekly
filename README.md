@@ -1,4 +1,4 @@
-## F2E Weekly
+## [F2E Weekly](http://sandywu.me/weekly/)
 
 内测 还请组内朋友多多应援  
 小范围试用先 如觉得好可以帮推广 觉得弱可以退订   
